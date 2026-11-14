@@ -40,8 +40,7 @@ There are many reasons why I love this series:
 
 ---
 
-## p  My Favorite Character: Eleven
-## 💖 My Favorite Character: Max Mayfield
+## My Favorite Character: Max Mayfield
 
 Max Mayfield is my favorite character in Stranger Things because she is brave, independent, strong, and unique. I love her personality, her courage, and how she faces difficult situations even when things get scary.
 
